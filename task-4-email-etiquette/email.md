@@ -26,7 +26,7 @@ Yours sincerely,
 PULKIT SINGH  
 B.Tech — ME | First Year  
 VIT Bhopal University  
-Registration No: 25BCE10981
+Registration No: 25Bmr10010
 
 ## Email 2 — Summer Internship Application
 
